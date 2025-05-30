@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @TheREALItalianLag
 - 👀 I’m interested in jorking it
 - 🌱 I’m currently learning long busting
-- 💞️ I’m looking to collaborate on sex
+- 💞️ I’m looking to collaborate on being freaky
 - 📫 How to reach me ed.lowcosta@gmail.com
-- 😄 Pronouns: not/gay
-- ⚡ Fun fact: I'm not gay
+- 😄 Pronouns: 
+- ⚡ Fun fact: grown ass man
 
 <!---
 TheREALItalianLag/TheREALItalianLag is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
