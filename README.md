@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning long busting
 - 💞️ I’m looking to collaborate on being freaky
 - 📫 How to reach me ed.lowcosta@gmail.com
-- 😄 Pronouns: 
+- 😄 Pronouns: yo/gurt
 - ⚡ Fun fact: grown ass man
 
 <!---
